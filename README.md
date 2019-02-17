@@ -1,0 +1,2 @@
+# pajenterprises
+We work we commit to our network share value across our platform corporation PAJ.Enterprises LLC. Sharing our rose projects earning Disclosure: I am/we are long PM. I wrote this article myself, and it expresses my own opinions. I am not receiving compensation for it (other than from Seeking Alpha). I have no business relationship with any company whose stock is mentioned in this article.
